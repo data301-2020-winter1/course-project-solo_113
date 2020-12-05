@@ -19,6 +19,6 @@ Details for Milestone are available on Canvas (left sidebar, Course Project) or 
 
 - Person 1: Im Allan Nganga and I am from Kenya.
 
-## References
+## Milestone 4 - Video link.
 
-{Add your stuff here}
+https://youtu.be/nekChb5tIXA
